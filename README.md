@@ -1,1 +1,0 @@
-Naryna Azizpour narynaa
